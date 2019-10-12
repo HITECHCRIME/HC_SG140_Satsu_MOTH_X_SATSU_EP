@@ -61,9 +61,7 @@ sale a ta u
 hombres de solitario
 hacer un bombes de ir
 
-
 donde? donde?? (scream?)
-
 
 a la izquerda aaaa
 pollo una bloma que te coma
@@ -75,6 +73,7 @@ quello que es tomar andale
 ahora e version
 bad breed
 
+THIS ONE IS THE IMPORTANT PART SATSU
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
