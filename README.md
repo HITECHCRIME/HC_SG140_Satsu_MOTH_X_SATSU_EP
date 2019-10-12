@@ -20,6 +20,7 @@ Beat.
 
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
 
+
 HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
 JUST WRITING LATINO SOUNDING WORDS FOR NOW :P
 
