@@ -14,7 +14,6 @@ MOTH second.
 
 **Title:** X / **Featuring:** Satsugai, MOTHNODE
 
-
 **Production:** underBWE / **Lyrics:** Satsugai, MOTHNODE
 
 ## Lyrics
