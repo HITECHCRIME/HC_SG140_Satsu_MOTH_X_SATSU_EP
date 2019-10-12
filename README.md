@@ -63,17 +63,20 @@ mala fama corazon
 is ripped 
 hacer blotas
 en estoma, rota
-cion de ******agos 
-
+cion de amigos amos 
 que vivir
+
+
 mueeeerteeee
-que vivir a 
+que vivir por 
 suerte
 
 entonces
 no subio de ti
 
 suerte
+
+tienes 
 
 
 
