@@ -82,8 +82,6 @@ skrr skrrr
 
 ```
 
-## Lyrics Testing Ground
-
 | x | 1 | 2 | 3 | 4 |
 |---|---|---|---|---|
 | 1 | *i'm in a* **fast** food | **joint** and i just  | **or**dered a  | **la**tte  |
