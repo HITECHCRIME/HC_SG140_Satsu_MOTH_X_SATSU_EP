@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Satsu lead song.
+Satsu lead song. MOTH second.
 
 **Beat:** [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - DUMB SHIT  (prod. by underBWE)
 
