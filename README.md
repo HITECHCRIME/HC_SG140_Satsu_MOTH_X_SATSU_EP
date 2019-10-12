@@ -57,6 +57,7 @@ que vivir a
 suerte
 
 entonces
+no subio de ti
 
 suerte
 
