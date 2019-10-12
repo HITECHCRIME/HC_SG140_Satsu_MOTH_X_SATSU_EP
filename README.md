@@ -24,8 +24,8 @@ satsumoth
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
 
 
-
 \
+
 
 Hey Satsu
 HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
@@ -35,6 +35,7 @@ SO THEY MAKE SENSE AND GO WELL WITH THE RHYTHM.
  
 SATSU LYRICS
 el...
+
 
 MOTHNODE
 sale a ta u
