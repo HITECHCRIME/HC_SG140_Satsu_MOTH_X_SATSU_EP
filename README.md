@@ -12,7 +12,7 @@ Beat.
 
 **Title:** X / **Featuring:** Satsugai, MOTHNODE
 
-**Production:**  / **Lyrics:** Satsugai, MOTHNODE
+**Production:** underBWE / **Lyrics:** Satsugai, MOTHNODE
 
 ## Lyrics
 
