@@ -34,7 +34,25 @@ PROBABLY WILL NEED SOME HELP FIGURING OUT THE WORDS
 SO THEY MAKE SENSE AND GO WELL WITH THE RHYTHM.
  
 SATSU LYRICS
-el...
+El diablo me esta susurrando 
+El diablo me esta susurrando 
+Dandome ordenes en el oído 
+Quiere que prenda en fuego a ese malparido
+
+No tienes signos vitales esta malherido 
+De muerte llamen al paramedico si tiene suerte
+Suerte y muerte
+Verte inerte
+Solo eres un ente
+
+Llego al high school 
+Con la escopeta y con la cruz
+Disparo mis rondas 
+Sigo sin ver la luz
+Llego al high school
+Con la escopeta y con la cruz
+Nosferatu
+Sal de tu ataud
 
 
 MOTHNODE
