@@ -19,14 +19,26 @@ Beat.
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
 
+HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
+JUST WRITING LATINO SOUNDING WORDS FOR NOW :P
+
 sale a ta u
+
+hombres de solitario
+hacer un bombes de ir
+
+donde? donde??
+
+
 
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 is ripped
 
-
+a la uzquerda aaa
+quello que es tomar andale
+ahora e version
 bad breed
 
 ```
