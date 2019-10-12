@@ -17,11 +17,16 @@ Beat.
 ## Lyrics
 
 ```
+
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
 
 HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
 JUST WRITING LATINO SOUNDING WORDS FOR NOW :P
 
+SATSU LYRICS
+el...
+
+MOTHNODE
 sale a ta u
 
 hombres de solitario
