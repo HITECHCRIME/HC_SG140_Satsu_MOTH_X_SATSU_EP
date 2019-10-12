@@ -19,6 +19,9 @@ Beat.
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
 
+a la izquerda aaaa
+pollo una bloma que te coma
+
 ```
 
 ## Lyrics Testing Ground
