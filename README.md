@@ -66,7 +66,7 @@ donde? donde?? (scream?)
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
-is ripped
+esta ? ("ripped")
 
 a la uzquerda aaaa
 quello que es tomar andale
@@ -74,14 +74,15 @@ ahora e version
 bad breed
 
 THIS ONE IS THE IMPORTANT PART SATSU
-a la izquerda aaaa
-pollo una bloma que te coma
+a la izquerda-aaaa -desar
+rollo una broma in a coma
 mala fama corazon 
-is ripped 
-hacer blotas
+esta clear
+crean blotas
 en estoma, rota
-cion de amigos amos 
+cion de amigos vamos 
 que vivir
+
 
 
 mueeeerteeee
