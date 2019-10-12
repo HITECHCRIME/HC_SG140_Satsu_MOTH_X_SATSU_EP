@@ -44,6 +44,25 @@ quello que es tomar andale
 ahora e version
 bad breed
 
+a la izquerda aaaa
+pollo una bloma que te coma
+mala fama corazon 
+is ripped hacer blotas
+en estomago, rota
+cion de ******agos 
+
+muerte 
+
+suerte
+
+
+muerte
+suerte
+
+skrr skrrr
+
+
+
 ```
 
 ## Lyrics Testing Ground
