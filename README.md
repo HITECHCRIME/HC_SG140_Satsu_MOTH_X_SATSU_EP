@@ -10,9 +10,9 @@ Satsu lead song.
 [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - DUMB SHIT  (prod. by underBWE)
 Beat.
 
-**Title:**  / **Featuring:** 
+**Title:** X / **Featuring:** Satsugai, MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:**  / **Lyrics:** Satsugai, MOTHNODE
 
 ## Lyrics
 
