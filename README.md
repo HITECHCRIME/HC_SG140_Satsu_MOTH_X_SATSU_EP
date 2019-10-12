@@ -84,11 +84,6 @@ skrr skrrr
 
 ## Lyrics Testing Ground
 
-16bar - verse
-
-*italics* run in
-**bold**
-
 | x | 1 | 2 | 3 | 4 |
 |---|---|---|---|---|
 | 1 | *i'm in a* **fast** food | **joint** and i just  | **or**dered a  | **la**tte  |
