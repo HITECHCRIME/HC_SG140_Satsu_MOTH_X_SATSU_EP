@@ -66,6 +66,7 @@ is ripped
 hacer blotas
 en estoma, rota
 cion de ******agos 
+
 que vivir
 mueeeerteeee
 que vivir a 
