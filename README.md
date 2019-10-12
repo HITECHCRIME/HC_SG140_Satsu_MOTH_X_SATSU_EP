@@ -48,7 +48,8 @@ bad breed
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
-is ripped hacer blotas
+is ripped 
+hacer blotas
 en estoma, rota
 cion de ******agos 
 que vivir
@@ -60,6 +61,7 @@ entonces
 no subio de ti
 
 suerte
+
 
 
 muerte
