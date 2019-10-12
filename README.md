@@ -17,6 +17,7 @@ MOTH second.
 **Production:** underBWE / **Lyrics:** Satsugai, MOTHNODE
 
 ## Lyrics
+satsumoth
 
 ```
 
