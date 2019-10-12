@@ -49,11 +49,12 @@ a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 is ripped hacer blotas
-en estomago, rota
+en estoma, rota
 cion de ******agos 
-
-muerte 
-
+que vivir
+mueeeerteeee
+que vivir a 
+suerte
 
 suerte
 
