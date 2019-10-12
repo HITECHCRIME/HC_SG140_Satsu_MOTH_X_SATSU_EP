@@ -34,14 +34,12 @@ hacer un bombes de ir
 
 donde? donde??
 
-
-
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 is ripped
 
-a la uzquerda aaa
+a la uzquerda aaaa
 quello que es tomar andale
 ahora e version
 bad breed
