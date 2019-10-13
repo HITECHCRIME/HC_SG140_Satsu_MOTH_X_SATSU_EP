@@ -44,7 +44,7 @@ Sal de tu ataud                                  Get out of your coffin
 MOTHNODE
 Sal de tu ataud (growl?)
 
-SPANISH/ENGLISH
+SPANISH/ENGLISH (REPEAT AT THE END?)
 
 Click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
 3 oraciones hechas pero por ellos pero no            3 prayers done, but for them, but no
@@ -71,7 +71,7 @@ el diablo no es parte de la fe                       devil is not part of faith
 la entidad es humana                                 entity is human
 entidad que me habla es humana                       entity speaking to me is human (a man?)
 
-
+SPANISH EXTRA (IF IT FITS)
 
 a la izquerda-aaaa (desa)           ?                 on the left-yyyy
 rrollo una broma en la coma           ?              I developed a joke in a coma
@@ -79,6 +79,16 @@ mala fama, corazon                     ?             bad reputation, sweetheart/
 esta claro                                ?          is clear
 creas blotas en estoma                              you create blots on stoma, 
 rotacion de amigos quien vamos                      rotation of friends who run to live
+(
+     I LIKE THIS ONE -> rotación de amigos que corren                       rotation of friends who run to live
+     vivir
+     rotación de amigos, quien va,                       rotation of friends who goes who lives
+     quien vive
+     rotacion de amigos quien vajor                      rotation of friends who is better to live
+     que vivir
+     rotación de amigos que van                          rotation of friends who will live?
+     vivir
+)
 que vivir - con suerte                              - with luck
 - decidir (con) muerte                                decide to die / decide to make a pact with death / decide with death
 - sólo quiero vivir                                 just want to live
@@ -96,14 +106,7 @@ creas blotas en estoma                              you create blots in stoma,
                                                      
 OPTION_
 
-I LIKE THIS ONE -> rotación de amigos que corren                       rotation of friends who run to live
-vivir
-rotación de amigos, quien va,                       rotation of friends who goes who lives
-quien vive
-rotacion de amigos quien vajor                      rotation of friends who is better to live
-que vivir
-rotación de amigos que van                          rotation of friends who will live?
-vivir
+
 
 
 
