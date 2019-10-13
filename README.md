@@ -20,7 +20,7 @@ MOTH second.
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
  
-SATSUGAI666
+[SATSUGAI666]
 El diablo me esta susurrando                     The devil is whispering to me
 El diablo me esta susurrando                     The devil is whispering to me
 Dandome ordenes en el oído                       Giving me orders in the ear
