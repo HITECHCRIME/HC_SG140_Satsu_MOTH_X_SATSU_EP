@@ -65,7 +65,7 @@ donde? donde?? (scream?)
 
 xx
 
-a la izquerda aaaa
+por la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 esta ? ("ripped")
@@ -82,8 +82,25 @@ mala fama corazon
 esta clear
 crean blotas
 en estoma, rota
-cion de amigos vamos 
+cioooon de amigos vamos 
 que vivir
+
+a la izquerda-aaaa (desa)
+rrollo una broma in a coma
+mala fama, corazon 
+esta claro
+creas blotas
+en estoma, rotacion de amigos quien vamos 
+que vivir con suerte
+
+TRANSLATION
+on the left-yyyy
+I developed a joke in a coma
+bad reputation, sweetheart/heart
+it's clear
+you create blots
+in stoma, rotation of friends who are we going
+to live with luck
 
 
 
