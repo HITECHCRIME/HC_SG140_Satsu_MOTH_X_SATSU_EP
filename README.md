@@ -56,7 +56,7 @@ La gente vea                                         people to see
 Hacer que las bombas vayan                           make bombs go
 Desencadenar emociones y desaparecer                 trigger emotions and disappear
 
-Emociones desencadenantes y desaparecer?             triggering emotions and disappear
+(Emociones desencadenantes y desaparecer?             triggering emotions and disappear)
 Ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
 
 El diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
