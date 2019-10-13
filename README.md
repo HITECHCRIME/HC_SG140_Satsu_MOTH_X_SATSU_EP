@@ -23,7 +23,6 @@ Transition from Satsu will begin in a similar fashion, slow chant but mix some f
 
 \
 
-
 Hey Satsu
 HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
 JUST WRITING LATINO SOUNDING WORDS FOR NOW :P
@@ -82,13 +81,16 @@ en estoma, rota
 cioooon de amigos vamos 
 que vivir
 
-a la izquerda-aaaa (desa)
-rrollo una broma in a coma
+a la izquerda-aaaa
+(desa)rrollo una broma in a coma
 mala fama, corazon 
 esta claro
 creas blotas
-en estoma, rotacion de amigos quien vamos 
+en estoma, rota
+cion de amigos quien vamos 
 que vivir con suerte
+decidir con muerte
+sólo quiero vivir
 
 TRANSLATION
 on the left-yyyy
