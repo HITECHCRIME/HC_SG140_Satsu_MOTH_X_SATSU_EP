@@ -89,17 +89,19 @@ creas blotas en estoma                              you create blots in stoma,
                                                      
                                                      
 OPTION_
-rotacion de amigos quien vajor                      rotation of friends who is better to live
-que vivir
 
+I LIKE THIS ONE -> rotación de amigos que corren                       rotation of friends who run to live
+vivir
 rotación de amigos, quien va,                       rotation of friends who goes who lives
 quien vive
-
-rotación de amigos que corren                       rotation of friends who run to live
-vivir
-
+rotacion de amigos quien vajor                      rotation of friends who is better to live
+que vivir
 rotación de amigos que van                          rotation of friends who will live?
 vivir
+
+
+
+
 
 OPTION_
 donde? donde?? ayee gente ellos gritan (scream?)
