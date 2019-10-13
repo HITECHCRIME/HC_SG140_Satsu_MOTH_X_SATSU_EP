@@ -56,7 +56,12 @@ desencadenar emociones y desaparecer                 trigger emotions and disapp
 
 emociones desencadenantes y desaparecer?             triggering emotions and disappear
 
-El diablo me esta susurrando                         the devil is whispering to me
+el diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)    ?             
+aliento frio en mi cuello                            cold breath on my neck
+me está intentando de nuevo                          he's trying me again
+el diablo no es parte de la fe                       devil is not part of faith 
+la entidad es humana                                 entity is human ////  entity speaking to me is human
+entidad que me habla es humana <- this one
 
 click clock escopeta va                              click clock shotgun goes
 3 oraciones hechas pero por ellos                    3 prayers done but for them
