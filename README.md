@@ -16,8 +16,7 @@ MOTH second.
 **Production:** underBWE / **Lyrics:** Satsugai, MOTHNODE
 
 ## Lyrics
-satsumoth
-+
+
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
 
