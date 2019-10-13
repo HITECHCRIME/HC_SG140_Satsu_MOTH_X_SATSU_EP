@@ -20,6 +20,7 @@ MOTH second.
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
  
+SATSUGAI666
 El diablo me esta susurrando 
 El diablo me esta susurrando 
 Dandome ordenes en el oído 
@@ -67,13 +68,18 @@ hombres de solitario
 poner bombas en los oídos
 hacer bombes de ir
 
-Solitary people 
+All solitary people
 carry bombs
-in their ears, 
-make the bombs 
+in their ears,
+make the bombs
 for people to see
 make bombs go
-a trigger from emo-tion
+trigger emotions
+and disappear
+
+Click clock shotgun goes
+3 prayers done but for them
+
 
 Todas personas solitarias
 llevar bombas en sus oídos
