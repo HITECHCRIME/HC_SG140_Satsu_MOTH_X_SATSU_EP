@@ -44,6 +44,8 @@ Sal de tu ataud                                  Get out of your coffin
 MOTHNODE
 Sal de tu ataud (growl?)
 
+SPANISH/ENGLISH
+
 Click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
 3 oraciones hechas pero por ellos pero no            3 prayers done, but for them, but no
 Te niego en tu fe                                    i deny you in your faith
@@ -59,6 +61,8 @@ Desencadenar emociones y desaparecer                 trigger emotions and disapp
 (Emociones desencadenantes y desaparecer?             triggering emotions and disappear)
 Ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
 
+SPANISH
+
 El diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
 Aliento frio en mi cuello                            cold breath on my neck
 me está intentando de nuevo                          he's trying me again
@@ -67,12 +71,14 @@ el diablo no es parte de la fe                       devil is not part of faith
 la entidad es humana                                 entity is human
 entidad que me habla es humana                       entity speaking to me is human (a man?)
 
+
+
 a la izquerda-aaaa (desa)           ?                 on the left-yyyy
 rrollo una broma en la coma           ?              I developed a joke in a coma
 mala fama, corazon                     ?             bad reputation, sweetheart/heart
 esta claro                                ?          is clear
-creas blotas en estoma                              you create blots in stoma, 
-rotacion de amigos quien vamos 
+creas blotas en estoma                              you create blots on stoma, 
+rotacion de amigos quien vamos                      rotation of friends who run to live
 que vivir - con suerte                              - with luck
 - decidir (con) muerte                                decide to die / decide to make a pact with death / decide with death
 - sólo quiero vivir                                 just want to live
