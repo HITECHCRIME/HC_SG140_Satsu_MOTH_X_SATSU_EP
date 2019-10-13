@@ -68,43 +68,33 @@ hombres de solitario
 poner bombas en los oídos
 hacer bombes de ir
 
-All solitary people
-carry bombs
-in their ears,
+all solitary people
+carry bombs in their ears
 make the bombs
 for people to see
 make bombs go
 trigger emotions
 and disappear
 
-Todas personas solitarias
-llevar bombas en sus oídos
-ellos no quieren escuchar hacer las bombas
-para que la gente vea hacer que las bombas vayan
-un desencadenante de la emoción
+todas las personas solitarias                        all solitary people
+llevar bombas en sus oídos                           carry bombs in their ears
+hacer las bombas para que la gente vea               make the bombs for people to see
+hacer que las bombas vayan                           make bombs go
+desencadenar emociones y desaparecer                 trigger emotions and disappear
 
-(Las personas solitarias llevan bombas
-en sus oídos
-hacer las bombas para que la gente vea
-hacer bombas de ir
-arrancado de la emoción)
+
+
+
+hacer que las bombas vayan 
+desencadenar emociones y desaparecer
 
 El diablo me esta susurrando
 
-
-
-but no, i deny you in your faith
-words are my shells
-sending you straight to hell
-
-click clock escopeta va                              Click clock shotgun goes
+click clock escopeta va                              click clock shotgun goes
 3 oraciones hechas pero por ellos                    3 prayers done but for them
-pero no, te niego en tu fe
-las palabras son mis cartuchos
-enviándote directamente al infierno
-
-
-
+pero no, te niego en tu fe                           but no, i deny you in your faith
+las palabras son mis cartuchos                       words are my shells
+enviándote directamente al infierno                  sending you straight to hell
 
 donde? donde?? ayee gente ellos gritan
 (scream?)
