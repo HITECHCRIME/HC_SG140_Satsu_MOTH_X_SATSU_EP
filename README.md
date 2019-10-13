@@ -77,10 +77,6 @@ make bombs go
 trigger emotions
 and disappear
 
-Click clock shotgun goes
-3 prayers done but for them
-
-
 Todas personas solitarias
 llevar bombas en sus oídos
 ellos no quieren escuchar hacer las bombas
@@ -92,6 +88,22 @@ en sus oídos
 hacer las bombas para que la gente vea
 hacer bombas de ir
 arrancado de la emoción)
+
+El diablo me esta susurrando
+
+
+
+but no, i deny you in your faith
+words are my shells
+sending you straight to hell
+
+click clock escopeta va                              Click clock shotgun goes
+3 oraciones hechas pero por ellos                    3 prayers done but for them
+pero no, te niego en tu fe
+las palabras son mis cartuchos
+enviándote directamente al infierno
+
+
 
 
 donde? donde?? ayee gente ellos gritan
