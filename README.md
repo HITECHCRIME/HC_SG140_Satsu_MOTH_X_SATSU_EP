@@ -41,13 +41,16 @@ Con la escopeta y con la cruz
 Nosferatu
 Sal de tu ataud
 
-MOTHNODE
+MOTHNODE LYRICS
 sale a ta u
 
 hombres de solitario
-hacer un bombes de ir
+poner bombas en los oídos
+hacer bombes de ir
 
-donde? donde?? (scream?)
+
+donde? donde?? ayee gente ellos gritan
+(scream?)
 
 xx
 
