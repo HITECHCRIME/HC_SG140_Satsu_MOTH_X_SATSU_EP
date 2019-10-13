@@ -63,11 +63,7 @@ el diablo no es parte de la fe                       devil is not part of faith
 la entidad es humana                                 entity is human ////  entity speaking to me is human (a man?)
 entidad que me habla es humana <- this one
 
-click clock escopeta va                              click clock shotgun goes
-3 oraciones hechas pero por ellos                    3 prayers done but for them
-pero no, te niego en tu fe                           but no, i deny you in your faith
-las palabras son mis cartuchos                       words are my shells
-enviándote directamente al infierno                  sending you straight to hell
+
 
 donde? donde?? ayee gente ellos gritan
 (scream?)
@@ -82,34 +78,39 @@ quello que es tomar andale
 ahora e version
 bad breed
 corazon
-THIS ONE IS THE IMPORTANT PART SATSU
-a la izquerda-aaaa -desar
-rollo una broma in a coma
-mala fama corazon 
-esta clear
-crean blotas
-en estoma, rota
-cioooon de amigos vamos 
-que vivir
 
-a la izquerda-aaaa
-(desa)rrollo una broma in a coma
-mala fama, corazon 
-esta claro
-creas blotas
-en estoma, rota
-cion de amigos quien vamos 
+a la izquerda-aaaa (desa)                           on the left-yyyy
+rrollo una broma in a coma                          I developed a joke in a coma
+mala fama, corazon                                  bad reputation, sweetheart/heart
+esta claro                                          it's clear
+creas blotas en estoma                              you create blots in stoma, 
+rotacion de amigos quien vamos 
 que vivir con suerte
 decidir con muerte
 sólo quiero vivir
 
+rotación de amigos, quien va,                       rotation of friends who goes who lives
+quien vive
+
+rotación de amigos que corren                       rotation of friends who run to live
+vivir
+
+rotación de amigos que van                          rotation of friends who will live?
+vivir
+
+click clock escopeta va                              click clock shotgun goes
+3 oraciones hechas pero por ellos                    3 prayers done but for them
+pero no, te niego en tu fe                           but no, i deny you in your faith
+las palabras son mis cartuchos                       words are my shells
+enviándote directamente al infierno                  sending you straight to hell
+
 TRANSLATION
-on the left-yyyy
-I developed a joke in a coma
-bad reputation, sweetheart/heart
-it's clear
-you create blots
-in stoma, rotation of friends who are we going
+
+
+
+
+
+, rotation of friends who are we going
 to live with luck
 
 mueeeerteeee
@@ -130,7 +131,14 @@ suerte
 
 skrr skrrr
 
-
+a la izquerda-aaaa -desar
+rollo una broma in a coma
+mala fama corazon 
+esta clear
+crean blotas
+en estoma, rota
+cioooon de amigos vamos 
+que vivir
 
 ```
 
