@@ -45,11 +45,10 @@ MOTHNODE LYRICS
 Sal de tu ataud (growl?)
 
 click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
-3 oraciones hechas pero por ellos                    3 prayers done but for them
-pero no, te niego en tu fe                           but no, i deny you in your faith
+3 oraciones hechas pero por ellos pero no            3 prayers done, but for them, but no
+te niego en tu fe                                    i deny you in your faith
 las palabras son mis cartuchos                       words are my shells
 enviándote directamente al infierno                  sending you straight to hell
-
 todas las personas solitarias                        all solitary people
 llevar bombas en sus oídos                           carry bombs in their ears
 hacer las bombas para que                            make the bombs for
@@ -58,7 +57,7 @@ hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
 
 emociones desencadenantes y desaparecer?             triggering emotions and disappear
-                                                     they are me, they are me
+ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
 
 el diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
 aliento frio en mi cuello                            cold breath on my neck
@@ -89,9 +88,6 @@ vivir
 
 rotación de amigos que van                          rotation of friends who will live?
 vivir
-
-
-
 
 donde? donde?? ayee gente ellos gritan (scream?)
 
