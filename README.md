@@ -41,7 +41,7 @@ Con la escopeta y con la cruz                    With the shotgun and with the c
 Nosferatu                                        Nosferatu
 Sal de tu ataud                                  Get out of your coffin
 
-MOTHNODE LYRICS
+MOTHNODE
 Sal de tu ataud (growl?)
 
 click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
