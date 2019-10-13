@@ -131,8 +131,7 @@ suerte
 
 entonces no subio de ti
 suerte tienes 
-muerte
-suerte
+muerte suerte
 
 skrr skrrr
 
