@@ -9,7 +9,6 @@
 Satsu lead song.
 MOTH second.
 
-
 **Beat:** [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - DUMB SHIT  (prod. by underBWE)
 
 **Title:** X / **Featuring:** Satsugai, MOTHNODE
