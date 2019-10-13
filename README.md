@@ -99,8 +99,6 @@ you create blots
 in stoma, rotation of friends who are we going
 to live with luck
 
-
-
 mueeeerteeee
 que vivir por 
 suerte
