@@ -75,13 +75,10 @@ for people to see
 make bombs go
 a trigger from emo-tion
 
-Personas solitarias
-llevar bombas
-en sus oídos
-ellos no quieren escuchar
-hacer las bombas
-para que la gente vea
-hacer que las bombas vayan
+Todas personas solitarias
+llevar bombas en sus oídos
+ellos no quieren escuchar hacer las bombas
+para que la gente vea hacer que las bombas vayan
 un desencadenante de la emoción
 
 (Las personas solitarias llevan bombas
