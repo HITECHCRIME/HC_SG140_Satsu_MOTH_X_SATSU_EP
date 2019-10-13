@@ -52,9 +52,9 @@ Enviándote directamente (al infierno? / "hell" eng?) sending you straight to he
 Todas las personas solitarias                        all solitary people
 Llevar bombas en sus oídos                           carry bombs in their ears
 Hacer las bombas para que                            make the bombs for
-la gente vea                                         people to see
-hacer que las bombas vayan                           make bombs go
-desencadenar emociones y desaparecer                 trigger emotions and disappear
+La gente vea                                         people to see
+Hacer que las bombas vayan                           make bombs go
+Desencadenar emociones y desaparecer                 trigger emotions and disappear
 
 emociones desencadenantes y desaparecer?             triggering emotions and disappear
 ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
