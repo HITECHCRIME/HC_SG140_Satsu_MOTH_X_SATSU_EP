@@ -19,14 +19,6 @@ MOTH second.
 
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
-
-\
-
-Hey Satsu
-HEHEHEHEHEHEHEHEHEHE SO SILLY BUT FUCK IT
-JUST WRITING LATINO SOUNDING WORDS FOR NOW :P
-PROBABLY WILL NEED SOME HELP FIGURING OUT THE WORDS
-SO THEY MAKE SENSE AND GO WELL WITH THE RHYTHM.
  
 SATSU LYRICS
 El diablo me esta susurrando 
