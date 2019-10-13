@@ -73,10 +73,10 @@ entidad que me habla es humana                       entity speaking to me is hu
 
 SPANISH EXTRA (IF IT FITS)
 
-a la izquerda-aaaa (desa)           ?                 on the left-yyyy
-rrollo una broma en la coma           ?              I developed a joke in a coma
-mala fama, corazon                     ?             bad reputation, sweetheart/heart
-esta claro                                ?          is clear
+a la izquerda-aaaa (desa)                           on the left-yyyy
+rrollo una broma en la coma                         I developed a joke in a coma
+mala fama, corazon                                  bad reputation, sweetheart/heart
+esta claro                                          is clear
 creas blotas en estoma                              you create blots on stoma, 
 rotacion de amigos quien vamos                      rotation of friends who run to live
 (
@@ -99,14 +99,11 @@ ahora e version ?
 bad breed ?
 
 OPTION_
-esta claro                                ?          is clear
+esta claro                                ?         is clear
 creas blotas en estoma                              you create blots in stoma, 
-                                                     i'll vomit to get clear
+TRANSLATE                                           i'll vomit to get clear
                                                      
-                                                     
-OPTION_
-
-
+                                                   
 
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
 
