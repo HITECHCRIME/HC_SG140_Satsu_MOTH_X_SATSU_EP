@@ -89,6 +89,9 @@ que vivir con suerte
 decidir con muerte
 sólo quiero vivir
 
+rotacion de amigos quien vajor                      rotation of friends who is better to live
+que vivir
+
 rotación de amigos, quien va,                       rotation of friends who goes who lives
 quien vive
 
