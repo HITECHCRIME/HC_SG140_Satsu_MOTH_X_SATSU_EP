@@ -82,6 +82,12 @@ quello que es tomar andale ?
 ahora e version ?
 bad breed ?
 
+
+OPTION_
+esta claro                                ?          is clear
+creas blotas en estoma                              you create blots in stoma, 
+                                                     i'll vomit to get clear
+OPTION_
 rotacion de amigos quien vajor                      rotation of friends who is better to live
 que vivir
 
@@ -94,6 +100,7 @@ vivir
 rotación de amigos que van                          rotation of friends who will live?
 vivir
 
+OPTION_
 donde? donde?? ayee gente ellos gritan (scream?)
 
 DISCARDED LYRICS / EARLY VERSIONS
