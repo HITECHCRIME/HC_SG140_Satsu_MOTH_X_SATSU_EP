@@ -19,9 +19,7 @@ Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
 
 ## Lyrics
 
-```
-Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
- 
+``` 
 [SATSUGAI666]
 El diablo me esta susurrando                     The devil is whispering to me
 El diablo me esta susurrando                     The devil is whispering to me
@@ -110,7 +108,7 @@ OPTION_
 
 
 
-
+Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
 
 
 
