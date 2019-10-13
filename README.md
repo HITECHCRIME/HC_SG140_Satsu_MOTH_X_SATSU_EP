@@ -19,9 +19,7 @@ MOTH second.
 satsumoth
 +
 ```
-
-Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try?
-
+Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
 
 \
 
