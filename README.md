@@ -21,45 +21,25 @@ MOTH second.
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
  
 SATSUGAI666
-El diablo me esta susurrando 
-El diablo me esta susurrando 
-Dandome ordenes en el oído 
-Quiere que prenda en fuego a ese malparido
+El diablo me esta susurrando                     The devil is whispering to me
+El diablo me esta susurrando                     The devil is whispering to me
+Dandome ordenes en el oído                       Giving me orders in the ear
+Quiere que prenda en fuego a ese malparido       He wants me to set that bad guy on fire
 
-No tienes signos vitales esta malherido 
-De muerte llamen al paramedico si tiene suerte
-Suerte y muerte
-Verte inerte
-Solo eres un ente
+No tienes signos vitales esta malherido          You have no vital signs this badly hurt
+De muerte llamen al paramedico si tiene suerte   Call the paramedic if he is lucky
+Suerte y muerte                                  Luck and death
+Verte inerte                                     See you inert
+Solo eres un ente                                You are just an entity
 
-Llego al high school 
-Con la escopeta y con la cruz
-Disparo mis rondas 
-Sigo sin ver la luz
-Llego al high school
-Con la escopeta y con la cruz
-Nosferatu
-Sal de tu ataud
-
-The devil is whispering to me
-The devil is whispering to me
-Giving me orders in the ear
-He wants me to set that bad guy on fire
-
-You have no vital signs this badly hurt
-Call the paramedic if he is lucky
-Luck and death
-See you inert
-You are just an entity
-
-I arrive at the high school
-With the shotgun and with the cross
-I shoot my rounds
-I still can't see the light
-I arrive at the high school
-With the shotgun and with the cross
-Nosferatu
-Get out of your coffin
+Llego al high school                             I arrive at the high school
+Con la escopeta y con la cruz                    With the shotgun and with the cross
+Disparo mis rondas                               I shoot my rounds
+Sigo sin ver la luz                              I still can't see the light
+Llego al high school                             I arrive at the high school
+Con la escopeta y con la cruz                    With the shotgun and with the cross
+Nosferatu                                        Nosferatu
+Sal de tu ataud                                  Get out of your coffin
 
 MOTHNODE LYRICS
 sale a ta u
@@ -68,28 +48,15 @@ hombres de solitario
 poner bombas en los oídos
 hacer bombes de ir
 
-all solitary people
-carry bombs in their ears
-make the bombs
-for people to see
-make bombs go
-trigger emotions
-and disappear
-
 todas las personas solitarias                        all solitary people
 llevar bombas en sus oídos                           carry bombs in their ears
 hacer las bombas para que la gente vea               make the bombs for people to see
 hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
 
-emociones desencadenantes y desaparecer?
+emociones desencadenantes y desaparecer?             triggering emotions and disappear
 
-
-
-hacer que las bombas vayan 
-desencadenar emociones y desaparecer
-
-El diablo me esta susurrando
+El diablo me esta susurrando                         the devil is whispering to me
 
 click clock escopeta va                              click clock shotgun goes
 3 oraciones hechas pero por ellos                    3 prayers done but for them
