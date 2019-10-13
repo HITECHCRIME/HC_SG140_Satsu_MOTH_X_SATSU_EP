@@ -44,9 +44,11 @@ Sal de tu ataud                                  Get out of your coffin
 MOTHNODE LYRICS
 Sal de tu ataud (growl?)
 
-hombres de solitario
-poner bombas en los oídos
-hacer bombes de ir
+click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
+3 oraciones hechas pero por ellos                    3 prayers done but for them
+pero no, te niego en tu fe                           but no, i deny you in your faith
+las palabras son mis cartuchos                       words are my shells
+enviándote directamente al infierno                  sending you straight to hell
 
 todas las personas solitarias                        all solitary people
 llevar bombas en sus oídos                           carry bombs in their ears
@@ -56,13 +58,40 @@ hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
 
 emociones desencadenantes y desaparecer?             triggering emotions and disappear
+                                                     they are me, they are me
 
-el diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)    ?             
+el diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
 aliento frio en mi cuello                            cold breath on my neck
 me está intentando de nuevo                          he's trying me again
-el diablo no es parte de la fe                       devil is not part of faith 
-la entidad es humana                                 entity is human ////  entity speaking to me is human (a man?)
-entidad que me habla es humana <- this one
+el diablo no es parte de la fe                       devil is not part of faith
+
+la entidad es humana                                 entity is human
+entidad que me habla es humana                       entity speaking to me is human (a man?)
+
+a la izquerda-aaaa (desa)           ?                 on the left-yyyy
+rrollo una broma in a coma           ?              I developed a joke in a coma
+mala fama, corazon                     ?             bad reputation, sweetheart/heart
+esta claro                                ?          is clear
+creas blotas en estoma                              you create blots in stoma, 
+rotacion de amigos quien vamos 
+que vivir - con suerte
+- decidir con muerte
+- sólo quiero vivir
+
+rotacion de amigos quien vajor                      rotation of friends who is better to live
+que vivir
+
+rotación de amigos, quien va,                       rotation of friends who goes who lives
+quien vive
+
+rotación de amigos que corren                       rotation of friends who run to live
+vivir
+
+rotación de amigos que van                          rotation of friends who will live?
+vivir
+
+
+
 
 donde? donde?? ayee gente ellos gritan (scream?)
 
@@ -77,36 +106,6 @@ quello que es tomar andale
 ahora e version
 bad breed
 corazon
-
-a la izquerda-aaaa (desa)                           on the left-yyyy
-rrollo una broma in a coma                          I developed a joke in a coma
-mala fama, corazon                                  bad reputation, sweetheart/heart
-esta claro                                          it's clear
-creas blotas en estoma                              you create blots in stoma, 
-rotacion de amigos quien vamos 
-que vivir con suerte
-decidir con muerte
-sólo quiero vivir
-
-rotacion de amigos quien vajor                      rotation of friends who is better to live
-que vivir
-
-rotación de amigos, quien va,                       rotation of friends who goes who lives
-quien vive
-
-rotación de amigos que corren                       rotation of friends who run to live
-vivir
-
-rotación de amigos que van                          rotation of friends who will live?
-vivir
-
-click clock escopeta va                              click clock shotgun goes
-3 oraciones hechas pero por ellos                    3 prayers done but for them
-pero no, te niego en tu fe                           but no, i deny you in your faith
-las palabras son mis cartuchos                       words are my shells
-enviándote directamente al infierno                  sending you straight to hell
-
-TRANSLATION
 
 
 
