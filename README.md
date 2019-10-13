@@ -96,15 +96,18 @@ vivir
 
 donde? donde?? ayee gente ellos gritan (scream?)
 
+DISCARDED LYRICS / EARLY VERSIONS
+
 corazon
 por la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 esta ? ("ripped")
 corazon
-
-, rotation of friends who are we going
-to live with luck
+a la uzquerda aaaa ?
+quello que es tomar andale ?
+ahora e version ?
+bad breed ?
 
 mueeeerteeee
 que vivir por 
@@ -124,7 +127,10 @@ esta clear
 crean blotas
 en estoma, rota
 cioooon de amigos vamos 
-que vivir
+que vivir (con suerte)
+
+, rotation of friends who are we going
+to live with luck
 
 ```
 
