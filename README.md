@@ -50,7 +50,6 @@ Con la escopeta y con la cruz
 Nosferatu
 Sal de tu ataud
 
-
 MOTHNODE
 sale a ta u
 
