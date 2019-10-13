@@ -82,6 +82,7 @@ hacer las bombas para que la gente vea               make the bombs for people t
 hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
 
+emociones desencadenantes y desaparecer?
 
 
 
