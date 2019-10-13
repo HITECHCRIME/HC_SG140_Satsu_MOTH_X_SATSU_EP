@@ -44,12 +44,12 @@ Sal de tu ataud                                  Get out of your coffin
 MOTHNODE
 Sal de tu ataud (growl?)
 
-click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
+Click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
 3 oraciones hechas pero por ellos pero no            3 prayers done, but for them, but no
-te niego en tu fe                                    i deny you in your faith
-las palabras (son mis?) cartuchos                    words are my shells
-enviándote directamente (al infierno? / "hell" eng?) sending you straight to hell
-todas las personas solitarias                        all solitary people
+Te niego en tu fe                                    i deny you in your faith
+Las palabras (son mis?) cartuchos                    words are my shells
+Enviándote directamente (al infierno? / "hell" eng?) sending you straight to hell
+Todas las personas solitarias                        all solitary people
 llevar bombas en sus oídos                           carry bombs in their ears
 hacer las bombas para que                            make the bombs for
 la gente vea                                         people to see
