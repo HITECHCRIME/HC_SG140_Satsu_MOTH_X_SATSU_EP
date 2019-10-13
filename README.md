@@ -60,7 +60,7 @@ el diablo me esta susurrando                         the devil is whispering to 
 aliento frio en mi cuello                            cold breath on my neck
 me está intentando de nuevo                          he's trying me again
 el diablo no es parte de la fe                       devil is not part of faith 
-la entidad es humana                                 entity is human ////  entity speaking to me is human
+la entidad es humana                                 entity is human ////  entity speaking to me is human (a man?)
 entidad que me habla es humana <- this one
 
 click clock escopeta va                              click clock shotgun goes
