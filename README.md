@@ -50,8 +50,8 @@ Te niego en tu fe                                    i deny you in your faith
 Las palabras (son mis?) cartuchos                    words are my shells
 Enviándote directamente (al infierno? / "hell" eng?) sending you straight to hell
 Todas las personas solitarias                        all solitary people
-llevar bombas en sus oídos                           carry bombs in their ears
-hacer las bombas para que                            make the bombs for
+Llevar bombas en sus oídos                           carry bombs in their ears
+Hacer las bombas para que                            make the bombs for
 la gente vea                                         people to see
 hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
