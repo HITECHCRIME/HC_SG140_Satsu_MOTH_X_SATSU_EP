@@ -13,7 +13,7 @@ MOTH second.
 
 Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
 
-**Title:** X / **Featuring:** Satsugai, MOTHNODE
+**Title:** X / **Featuring:** Satsugai666, MOTHNODE
 
 **Production:** underBWE / **Lyrics:** Satsugai666, MOTHNODE
 
