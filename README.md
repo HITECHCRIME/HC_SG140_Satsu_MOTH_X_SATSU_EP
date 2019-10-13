@@ -56,11 +56,11 @@ La gente vea                                         people to see
 Hacer que las bombas vayan                           make bombs go
 Desencadenar emociones y desaparecer                 trigger emotions and disappear
 
-emociones desencadenantes y desaparecer?             triggering emotions and disappear
-ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
+Emociones desencadenantes y desaparecer?             triggering emotions and disappear
+Ellos eran yo, ellos eran yo                         they were me, they were me (whispering)
 
-el diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
-aliento frio en mi cuello                            cold breath on my neck
+El diablo me esta susurrando                         the devil is whispering to me /// (el diablo me susurra)?             
+Aliento frio en mi cuello                            cold breath on my neck
 me está intentando de nuevo                          he's trying me again
 el diablo no es parte de la fe                       devil is not part of faith
 
@@ -81,7 +81,6 @@ a la uzquerda aaaa ?
 quello que es tomar andale ?
 ahora e version ?
 bad breed ?
-
 
 OPTION_
 esta claro                                ?          is clear
