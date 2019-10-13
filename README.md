@@ -101,13 +101,9 @@ bad breed ?
 OPTION_
 esta claro                                ?         is clear
 creas blotas en estoma                              you create blots in stoma, 
-TRANSLATE                                           i'll vomit to get clear
-                                                     
-                                                   
+TRANSLATE                                           i'll vomit to get clear                                       
 
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
-
-
 
 OPTION_
 donde? donde?? ayee gente ellos gritan (scream?)
