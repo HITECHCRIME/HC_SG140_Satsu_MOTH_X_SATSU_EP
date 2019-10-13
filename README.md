@@ -63,6 +63,8 @@ hacer un bombes de ir
 
 donde? donde?? (scream?)
 
+xx
+
 a la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
