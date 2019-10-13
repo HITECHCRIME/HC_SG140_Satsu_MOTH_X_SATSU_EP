@@ -11,6 +11,8 @@ MOTH second.
 
 **Beat:** [FREE] SYBYR  SYRINGE x ERIC NORTH TYPE BEAT - DUMB SHIT  (prod. by underBWE)
 
+Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
+
 **Title:** X / **Featuring:** Satsugai, MOTHNODE
 
 **Production:** underBWE / **Lyrics:** Satsugai, MOTHNODE
