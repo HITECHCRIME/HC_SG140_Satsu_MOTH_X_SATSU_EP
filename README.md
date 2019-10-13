@@ -52,8 +52,6 @@ hacer bombes de ir
 donde? donde?? ayee gente ellos gritan
 (scream?)
 
-xx
-
 por la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
