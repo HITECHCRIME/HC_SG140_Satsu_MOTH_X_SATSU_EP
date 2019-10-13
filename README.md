@@ -20,7 +20,6 @@ MOTH second.
 ```
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
  
-SATSU LYRICS
 El diablo me esta susurrando 
 El diablo me esta susurrando 
 Dandome ordenes en el oído 
@@ -41,6 +40,26 @@ Con la escopeta y con la cruz
 Nosferatu
 Sal de tu ataud
 
+The devil is whispering to me
+The devil is whispering to me
+Giving me orders in the ear
+He wants me to set that bad guy on fire
+
+You have no vital signs this badly hurt
+Call the paramedic if he is lucky
+Luck and death
+See you inert
+You are just an entity
+
+I arrive at the high school
+With the shotgun and with the cross
+I shoot my rounds
+I still can't see the light
+I arrive at the high school
+With the shotgun and with the cross
+Nosferatu
+Get out of your coffin
+
 MOTHNODE LYRICS
 sale a ta u
 
@@ -48,20 +67,43 @@ hombres de solitario
 poner bombas en los oídos
 hacer bombes de ir
 
+Solitary people 
+carry bombs
+in their ears, 
+make the bombs 
+for people to see
+make bombs go
+a trigger from emo-tion
+
+Personas solitarias
+llevar bombas
+en sus oídos
+ellos no quieren escuchar
+hacer las bombas
+para que la gente vea
+hacer que las bombas vayan
+un desencadenante de la emoción
+
+(Las personas solitarias llevan bombas
+en sus oídos
+hacer las bombas para que la gente vea
+hacer bombas de ir
+arrancado de la emoción)
+
 
 donde? donde?? ayee gente ellos gritan
 (scream?)
-
+corazon
 por la izquerda aaaa
 pollo una bloma que te coma
 mala fama corazon 
 esta ? ("ripped")
-
+corazon
 a la uzquerda aaaa
 quello que es tomar andale
 ahora e version
 bad breed
-
+corazon
 THIS ONE IS THE IMPORTANT PART SATSU
 a la izquerda-aaaa -desar
 rollo una broma in a coma
