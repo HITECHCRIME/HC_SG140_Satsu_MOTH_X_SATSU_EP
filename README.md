@@ -1,5 +1,5 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
-find a cover - maybe i'll make one
+find a cover - maybe i'll make one?
 # Satsu x MOTHNODE_ X
 
 **Listen now:** 
