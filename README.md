@@ -77,6 +77,11 @@ que vivir - con suerte
 - decidir con muerte
 - sólo quiero vivir
 
+a la uzquerda aaaa ?
+quello que es tomar andale ?
+ahora e version ?
+bad breed ?
+
 rotacion de amigos quien vajor                      rotation of friends who is better to live
 que vivir
 
@@ -97,15 +102,6 @@ pollo una bloma que te coma
 mala fama corazon 
 esta ? ("ripped")
 corazon
-a la uzquerda aaaa
-quello que es tomar andale
-ahora e version
-bad breed
-corazon
-
-
-
-
 
 , rotation of friends who are we going
 to live with luck
@@ -114,15 +110,8 @@ mueeeerteeee
 que vivir por 
 suerte
 
-entonces
-no subio de ti
-
-suerte
-
-tienes 
-
-
-
+entonces no subio de ti
+suerte tienes 
 muerte
 suerte
 
