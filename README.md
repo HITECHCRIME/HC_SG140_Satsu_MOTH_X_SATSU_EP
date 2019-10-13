@@ -68,14 +68,14 @@ la entidad es humana                                 entity is human
 entidad que me habla es humana                       entity speaking to me is human (a man?)
 
 a la izquerda-aaaa (desa)           ?                 on the left-yyyy
-rrollo una broma in a coma           ?              I developed a joke in a coma
+rrollo una broma en la coma           ?              I developed a joke in a coma
 mala fama, corazon                     ?             bad reputation, sweetheart/heart
 esta claro                                ?          is clear
 creas blotas en estoma                              you create blots in stoma, 
 rotacion de amigos quien vamos 
-que vivir - con suerte
-- decidir con muerte
-- sólo quiero vivir
+que vivir - con suerte                              - with luck
+- decidir (con) muerte                                decide to die / decide to make a pact with death / decide with death
+- sólo quiero vivir                                 just want to live
 
 a la uzquerda aaaa ?
 quello que es tomar andale ?
@@ -86,6 +86,8 @@ OPTION_
 esta claro                                ?          is clear
 creas blotas en estoma                              you create blots in stoma, 
                                                      i'll vomit to get clear
+                                                     
+                                                     
 OPTION_
 rotacion de amigos quien vajor                      rotation of friends who is better to live
 que vivir
