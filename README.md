@@ -42,7 +42,7 @@ Nosferatu                                        Nosferatu
 Sal de tu ataud                                  Get out of your coffin
 
 MOTHNODE LYRICS
-sale a ta u
+Sal de tu ataud (growl?)
 
 hombres de solitario
 poner bombas en los oídos
@@ -50,7 +50,8 @@ hacer bombes de ir
 
 todas las personas solitarias                        all solitary people
 llevar bombas en sus oídos                           carry bombs in their ears
-hacer las bombas para que la gente vea               make the bombs for people to see
+hacer las bombas para que                            make the bombs for
+la gente vea                                         people to see
 hacer que las bombas vayan                           make bombs go
 desencadenar emociones y desaparecer                 trigger emotions and disappear
 
@@ -63,10 +64,8 @@ el diablo no es parte de la fe                       devil is not part of faith
 la entidad es humana                                 entity is human ////  entity speaking to me is human (a man?)
 entidad que me habla es humana <- this one
 
+donde? donde?? ayee gente ellos gritan (scream?)
 
-
-donde? donde?? ayee gente ellos gritan
-(scream?)
 corazon
 por la izquerda aaaa
 pollo una bloma que te coma
