@@ -90,7 +90,8 @@ rotacion de amigos quien vamos                      rotation of friends who run 
 )
 que vivir - con suerte                              - with luck
 - decidir (con) muerte                                decide to die / decide to make a pact with death / decide with death
-- sólo quiero vivir                                 just want to live
+- sólo quiero melo anadnir
+sole quiero a vivir                                 just want to live
 
 a la uzquerda aaaa ?
 quello que es tomar andale ?
