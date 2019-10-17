@@ -108,10 +108,11 @@ TRANSLATE                                           i'll vomit to get clear
 
 Transition from Satsu will begin in a similar fashion, slow chant but mix some fast rap into it. Ghostmane style perhaps? Try.
 
-OPTION_
+____________OPTION_
+
 donde? donde?? ayee gente ellos gritan (scream?)
 
-DISCARDED LYRICS / EARLY VERSIONS
+____________DISCARDED LYRICS / EARLY VERSIONS
 
 corazon
 por la izquerda aaaa
