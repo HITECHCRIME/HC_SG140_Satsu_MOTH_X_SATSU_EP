@@ -101,6 +101,7 @@ ahora e version ?
 bad breed ?
 
 OPTION_
+
 esta claro                                ?         is clear
 creas blotas en estoma                              you create blots in stoma, 
 TRANSLATE                                           i'll vomit to get clear                                       
