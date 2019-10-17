@@ -2,7 +2,7 @@
 find a cover - maybe i'll make one?
 # Satsu x MOTHNODE_ X
 
-**Listen now:** 
+**Listen now:** Soundcloud
 
 ## Project Data
 
