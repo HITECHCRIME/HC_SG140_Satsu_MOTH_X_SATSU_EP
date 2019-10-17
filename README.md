@@ -19,7 +19,7 @@ Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
 ## Lyrics
 
 ``` 
-[SATSUGAI666]
+_____SATSUGAI666
 
 El diablo me esta susurrando                     The devil is whispering to me
 El diablo me esta susurrando                     The devil is whispering to me
@@ -41,7 +41,7 @@ Con la escopeta y con la cruz                    With the shotgun and with the c
 Nosferatu                                        Nosferatu
 Sal de tu ataud                                  Get out of your coffin
 
-MOTHNODE
+_____MOTHNODE
 
 Sal de tu ataud (growl?)
 
