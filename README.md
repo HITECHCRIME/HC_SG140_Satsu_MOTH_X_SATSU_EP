@@ -73,7 +73,7 @@ la entidad es humana                                 entity is human
 entidad que me habla es humana                       entity speaking to me is human (a man?)
 
 SPANISH EXTRA (IF IT FITS)
-
+CHANGE THE MELODY TO A MORE BOUNCY ONE
 a la izquerda-aaaa (desa)                           on the left-yyyy
 rrollo una broma en la coma                         I developed a joke in a coma
 mala fama, corazon                                  bad reputation, sweetheart/heart
