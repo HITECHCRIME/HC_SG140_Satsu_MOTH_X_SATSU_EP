@@ -46,17 +46,19 @@ _____MOTHNODE
 Sal de tu ataud (growl?)
 
 SATSU CORRECTIONS
+
 Click clock escopeta va pow pow lock
 3 oraciones por ellos y pero no
 te niego en tu fe
 las palabras son mis cartuchos 
 enviandote directamente al infierno
+
 todas las personas solitarias
 llevan bombas en sus oidos
 pon bombas para que la gente vea
 pon bombas para desencadenar sus emociones y que desaparezcan
-
 desencadena emociones y desaparece
+
 ellos eran yo ,ellos eran yo
 
 el diablo me esta susurrando
