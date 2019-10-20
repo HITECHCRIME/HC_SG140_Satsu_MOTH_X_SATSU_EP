@@ -54,7 +54,7 @@ Las palabras son mis cartuchos
 Enviandote directamente al infierno
 
 Todas las personas solitarias
-llevan bombas en sus oidos
+Llevan bombas en sus oidos
 pon bombas para que la gente vea
 pon bombas para desencadenar sus emociones y que desaparezcan
 desencadena emociones y desaparece
