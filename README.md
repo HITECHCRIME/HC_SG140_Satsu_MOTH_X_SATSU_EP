@@ -18,7 +18,33 @@ Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
 
 ## Lyrics
 
-``` 
+```
+_____SATSUGAI666
+
+El diablo me esta susurrando                     The devil is whispering to me
+El diablo me esta susurrando                     The devil is whispering to me
+Dandome ordenes en el oído                       Giving me orders in the ear
+Quiere que prenda en fuego a ese malparido       He wants me to set that bad guy on fire
+
+No tienes signos vitales esta malherido          You have no vital signs this badly hurt
+De muerte llamen al paramedico si tiene suerte   Call the paramedic if he is lucky
+Suerte y muerte                                  Luck and death
+Verte inerte                                     See you inert
+Solo eres un ente                                You are just an entity
+
+Llego al high school                             I arrive at the high school
+Con la escopeta y con la cruz                    With the shotgun and with the cross
+Disparo mis rondas                               I shoot my rounds
+Sigo sin ver la luz                              I still can't see the light
+Llego al high school                             I arrive at the high school
+Con la escopeta y con la cruz                    With the shotgun and with the cross
+Nosferatu                                        Nosferatu
+Sal de tu ataud                                  Get out of your coffin
+
+_____MOTHNODE
+
+Sal de tu ataud (growl?)
+
 SATSU CORRECTIONS
 click clock escopeta va pow pow lock
 3 oraciones por ellos y pero no
@@ -59,35 +85,6 @@ OPTION
 esta claro
 creas manchas en el estoma
 vomitare y me limpiare
-
-
-
-
-_____SATSUGAI666
-
-El diablo me esta susurrando                     The devil is whispering to me
-El diablo me esta susurrando                     The devil is whispering to me
-Dandome ordenes en el oído                       Giving me orders in the ear
-Quiere que prenda en fuego a ese malparido       He wants me to set that bad guy on fire
-
-No tienes signos vitales esta malherido          You have no vital signs this badly hurt
-De muerte llamen al paramedico si tiene suerte   Call the paramedic if he is lucky
-Suerte y muerte                                  Luck and death
-Verte inerte                                     See you inert
-Solo eres un ente                                You are just an entity
-
-Llego al high school                             I arrive at the high school
-Con la escopeta y con la cruz                    With the shotgun and with the cross
-Disparo mis rondas                               I shoot my rounds
-Sigo sin ver la luz                              I still can't see the light
-Llego al high school                             I arrive at the high school
-Con la escopeta y con la cruz                    With the shotgun and with the cross
-Nosferatu                                        Nosferatu
-Sal de tu ataud                                  Get out of your coffin
-
-_____MOTHNODE
-
-Sal de tu ataud (growl?)
 
 SPANISH/ENGLISH (REPEAT AT THE END?)
 
