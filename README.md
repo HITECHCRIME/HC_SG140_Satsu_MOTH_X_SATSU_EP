@@ -86,6 +86,8 @@ esta claro
 creas manchas en el estoma
 vomitare y me limpiare
 
+INTRODUCE THESE CORRECTIONS! ^
+
 SPANISH/ENGLISH (REPEAT AT THE END?)
 
 Click clock escopeta va - pow pow, lock              click clock shotgun goes - pow pow, lock
