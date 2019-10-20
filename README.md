@@ -53,7 +53,7 @@ Te niego en tu fe
 Las palabras son mis cartuchos 
 Enviandote directamente al infierno
 
-todas las personas solitarias
+Todas las personas solitarias
 llevan bombas en sus oidos
 pon bombas para que la gente vea
 pon bombas para desencadenar sus emociones y que desaparezcan
