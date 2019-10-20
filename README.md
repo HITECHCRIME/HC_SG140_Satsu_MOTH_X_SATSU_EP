@@ -19,6 +19,50 @@ Link: https://www.youtube.com/watch?v=1lzfK8-yq8E
 ## Lyrics
 
 ``` 
+SATSU CORRECTIONS
+click clock escopeta va pow pow lock
+3 oraciones por ellos y pero no
+te niego en tu fe
+las palabras son mis cartuchos 
+enviandote directamente al infierno
+todas las personas solitarias
+llevan bombas en sus oidos
+pon bombas para que la gente vea
+pon bombas para desencadenar sus emociones y que desaparezcan
+
+desencadena emociones y desaparece
+ellos eran yo ,ellos eran yo
+
+el diablo me esta susurrando
+aliento frio en mi cuello
+lo intenta en mi de nuevo
+el diablo no es parte de la fe
+
+la entidad es humana
+la entidad que me habla es humana
+
+a la izquierda (could be Desarrollo too)
+hago bromas en la coma
+mala fama dulcecorazon/corazon
+creas manchas en el estoma
+amigos en rotacion (could be rotacion de amigos too) quien corre por su vida
+
+rotacion de amigos quien sigue quien vive
+rotacion de amigos quien es el mejor para vivir
+rotacion de amigos quien vivira?
+
+con suerte decide morir
+decide hacer un pacto con la muerte
+solo decide con quien quieres vivir
+
+OPTION
+esta claro
+creas manchas en el estoma
+vomitare y me limpiare
+
+
+
+
 _____SATSUGAI666
 
 El diablo me esta susurrando                     The devil is whispering to me
