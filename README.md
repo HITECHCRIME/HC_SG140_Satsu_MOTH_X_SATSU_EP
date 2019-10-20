@@ -49,9 +49,9 @@ SATSU CORRECTIONS
 
 Click clock escopeta va pow pow lock
 3 oraciones por ellos y pero no
-te niego en tu fe
-las palabras son mis cartuchos 
-enviandote directamente al infierno
+Te niego en tu fe
+Las palabras son mis cartuchos 
+Enviandote directamente al infierno
 
 todas las personas solitarias
 llevan bombas en sus oidos
