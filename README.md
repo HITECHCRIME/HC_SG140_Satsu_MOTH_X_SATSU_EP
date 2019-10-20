@@ -46,7 +46,7 @@ _____MOTHNODE
 Sal de tu ataud (growl?)
 
 SATSU CORRECTIONS
-click clock escopeta va pow pow lock
+Click clock escopeta va pow pow lock
 3 oraciones por ellos y pero no
 te niego en tu fe
 las palabras son mis cartuchos 
